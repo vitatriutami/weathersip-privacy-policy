@@ -2,7 +2,7 @@
 
 **Effective date:** July 8, 2025
 
-**WeatherSip** is a free mobile application developed by **Febrian Vito** ("Service Provider"). This policy explains how we collect, use, and protect your information.
+**WeatherSip** is a free mobile application developed by **Vita Tri Utami** ("Service Provider"). This policy explains how we collect, use, and protect your information.
 
 ## Information We Collect
 
