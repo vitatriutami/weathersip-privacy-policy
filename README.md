@@ -30,7 +30,7 @@ We may update this policy from time to time. Changes will be posted on this page
 
 ## Contact
 
-If you have questions, contact us at [febvit98@gmail.com](mailto:vitatriutami@gmail.com).
+If you have questions, contact us at [vitatriutami@gmail.com](mailto:vitatriutami@gmail.com).
 
 ---
 
